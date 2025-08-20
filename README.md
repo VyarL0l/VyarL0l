@@ -1,5 +1,5 @@
 #### *.ೃ࿐ ✧*
-![*.ೃ࿐ ✧*](https://disk.yandex.ru/i/SjzfcOLeiDimRQ)
+![*.ೃ࿐ ✧*](https://i.pinimg.com/736x/08/ad/8a/08ad8a547d5ee3a2796a92cafb6baf7d.jpg)
 
 **✸﹕☆**
 𝐻*ello!* *𝒲elcome to my account!!*
@@ -17,6 +17,11 @@
 -ぜったい来世でまた会お？
 -いますぐ輪廻 今回も結ばれないね
 -全て捨てて ぽいっ** 
+
+
+
+
+
 
 
 
