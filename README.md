@@ -1,5 +1,6 @@
 #### *.ೃ࿐ ✧*
-![*.ೃ࿐ ✧*](https://i.pinimg.com/736x/08/ad/8a/08ad8a547d5ee3a2796a92cafb6baf7d.jpg)
+![*.ೃ࿐ ✧*](<img width="3412" height="1920" alt="image" src="https://github.com/user-attachments/assets/072b5bc6-7607-42ff-9d85-5c157cc050a4" />
+)
 
 **✸﹕☆**
 𝐻*ello!* *𝒲elcome to my account!!*
