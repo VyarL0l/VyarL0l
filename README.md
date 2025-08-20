@@ -1,6 +1,5 @@
 #### *.ೃ࿐ ✧*
-![*.ೃ࿐ ✧*](<img width="3412" height="1920" alt="image" src="https://github.com/user-attachments/assets/072b5bc6-7607-42ff-9d85-5c157cc050a4" />
-)
+![*.ೃ࿐ ✧*](https://disk.yandex.ru/i/SjzfcOLeiDimRQ)
 
 **✸﹕☆**
 𝐻*ello!* *𝒲elcome to my account!!*
