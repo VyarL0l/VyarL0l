@@ -1,16 +1,24 @@
-## Hi there 👋
+#### *.ೃ࿐ ✧*
+![*.ೃ࿐ ✧*](https://i.pinimg.com/736x/08/ad/8a/08ad8a547d5ee3a2796a92cafb6baf7d.jpg)
 
-<!--
-**VyarL0l/VyarL0l** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**✸﹕☆**
+𝐻*ello!* *𝒲elcome to my account!!*
+*I'm **𝒱yar** ⊹ he/she > other pronous*
 
-Here are some ideas to get you started:
+♰ ﹋﹋﹋﹋ *Something about me: :* ﹋﹋﹋﹋ ♰
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*.bbday 22.11, pansexual, INFP, 9w1 sp/so*
+
+**[** ഒ **]**.; °*If I don't respond* ⤸
+*ᶻ﹕→ I'm just afk.. don't be mad* (ó﹏ò｡)
+
+**-いますぐ輪廻 今回も結ばれないね
+-嘘ついたら針千本 誓って
+-ぜったい来世でまた会お？
+-いますぐ輪廻 今回も結ばれないね
+-全て捨てて ぽいっ** 
+
+
+
+
+
